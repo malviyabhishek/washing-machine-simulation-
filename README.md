@@ -36,7 +36,8 @@ To run this project
 ## for the demo video visit 
  
 [youtube](https://youtu.be/LC40XEzVmDM)
-connnect us on [linkedin]🔗(www.linkedin.com/in/abhishekmalviya-)
+
+connnect us on 🔗[linkedin](www.linkedin.com/in/abhishekmalviya-)
 
 
 
