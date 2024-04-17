@@ -37,7 +37,7 @@ To run this project
  
 [youtube](https://youtu.be/LC40XEzVmDM)
 
-connnect us on 🔗[linkedin](www.linkedin.com/in/abhishekmalviya-)
+connnect us on 🔗[linkedin]((https://www.linkedin.com/in/abhishekmalviya-?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BnYdg5HnMQzGLkkH5VIDOoA%3D%3D)
 
 
 
